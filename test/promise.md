@@ -1,0 +1,1 @@
+I promise i will never use my Private Key which is Associated with real money in the plane text.
